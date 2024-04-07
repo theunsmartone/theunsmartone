@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @theunsmartone
-- 👀 I’m interested in GHPC
-- 📫 How to reach me @theunsmartone on discord
+- 👀 I’m interested in GHPC, and Tiny Combat Arena.
+- 📫 How to reach me. @theunsmartone on discord
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: :3
 
